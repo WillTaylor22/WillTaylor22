@@ -3,7 +3,7 @@
 I'm a founder working in Applied AI across the creative industries, with a background in theoretical physics. I grew up just north of Oxford, formerly the UK's largest village. I'm a fan of the deeply underrated sport called [scrambling](https://en.wikipedia.org/wiki/Scrambling) (somewhere between hiking and climbing).
 
 * 🔨 I'm currently building **[Versey.ai](https://versey.ai)** — Cursor for writing.
-* 🛠 Previously, I built **[Workflow Design](https://workflow.design)**, centralised feedback for web & design work, and was CEO of a 40 person team at **[Rota](https://rota.com)**, one of the UK's largest on-demand staffing marketplaces — 3,000 staff placed weekly across six offices, raising wages along the way.
+* 🛠 Previously, I built **[Workflow Design](https://workflow.design)**, centralised feedback for web & design work, and was CEO leading our 40 person team across six offices at **[Rota](https://rota.com)**, one of the UK's largest on-demand staffing marketplaces — 3,000 staff placed weekly, raising wages along the way.
 * 📚 I'm an avid reader with an unreasonable bookshelf. I once gave away 400+ books. Most of them have somehow found their way back.
 * 🏃 I do ultra-long-distance events — including running 100km in 24 hours.
 * 💬 I've coached executives and run support groups for young men.
