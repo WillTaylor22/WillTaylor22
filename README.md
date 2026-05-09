@@ -8,6 +8,6 @@ I'm a founder and builder currently working in Applied AI across the creative in
 * 🏃 I do ultra-long-distance events — including running 100km in 24 hours.
 * 💬 I've coached executives and run support groups for young men.
 * 😅 Fun fact: studying theoretical physics at Oxford did not stop me from working as a bartender, leading a 10-person medical device sales team, and running a CV writing company.
-* 🎮 As a kid, I built video games. I once did a solo tour of Vietnam and picked up dengue fever as a souvenir. I've since been a designer, engineer, marketer, and leader — usually all in the same week.
+* 🎮 As a kid, I built video games. I once did a solo research tour of Vietnam and picked up dengue fever as a souvenir. I've since been a designer, engineer, marketer, and leader — usually all in the same week.
 
-I'm best reached on **[X / Twitter](https://x.com/Willrftaylor)**. Always up for interesting conversations and collaborations.
+I'm best reached on **[LinkedIn](https://www.linkedin.com/in/wrftaylor** or **[X / Twitter](https://x.com/Willrftaylor)**. Always up for interesting conversations and collaborations.
